@@ -63,8 +63,4 @@ Pranshu Chaturvedi
 
 Rohan Prasad
 
-Rutu Patel
-
-Shashank Mahesh
-
 Gaurav Krishnan
